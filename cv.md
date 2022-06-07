@@ -6,5 +6,9 @@
 - Email: mr.krunets@mail.ru
 - Instagram: [Unoxan](https://www.instagram.com/unoxan/ "Unoxan")
 
+** my education **
+- Minsk Vocational College
+
+
 
 
